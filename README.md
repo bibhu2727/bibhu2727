@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **bibhu27.kumar@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Q-VedvKNbZXjm0fA7RCDJARbZfwsEs6s/view?usp=sharing](https://drive.google.com/file/d/1Q-VedvKNbZXjm0fA7RCDJARbZfwsEs6s/view?usp=sharing)
+- 📄 Know about my experiences [Mail me )
 
 - ⚡ Fun fact **Did you know? When I'm not coding, you can find me solving puzzles or exploring the world of AI-driven innovations. Always up for a challenge!**
 
